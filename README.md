@@ -10,6 +10,12 @@
 - 📫 How to reach me **chayancrroy3@gmail.com**
 
 - 📄 Know about my experiences [https://bit.ly/chayan_roy](https://bit.ly/chayan_roy)
+- 📄 Resume
+
+Scan the QR code below to view my resume:
+
+![Resume QR Code](./resume-qr.png)
+
 
 - ⚡ Fun fact **I think I am talkative.**
 
