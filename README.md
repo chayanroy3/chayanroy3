@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **chayancrroy3@gmail.com**
 
-- 📄 Know about my experiences [https://file.notion.so/f/f/44beb92b-b1d7-4ff2-87e3-ebfe5a23f393/874e4e64-e671-4a7a-bfa7-03af6466e9dd/Chayan_resume_oct24.pdf?table=block&id=129d0e7f-0e97-807f-9bf8-f7d6982b4c90&spaceId=44beb92b-b1d7-4ff2-87e3-ebfe5a23f393&expirationTimestamp=1742904000000&signature=B5AJ1kFdSbYzCFiRqNG4D0mSPJWKtZrKW_YeBcSCO8U&downloadName=Chayan_resume_oct24.pdf](https://file.notion.so/f/f/44beb92b-b1d7-4ff2-87e3-ebfe5a23f393/874e4e64-e671-4a7a-bfa7-03af6466e9dd/Chayan_resume_oct24.pdf?table=block&id=129d0e7f-0e97-807f-9bf8-f7d6982b4c90&spaceId=44beb92b-b1d7-4ff2-87e3-ebfe5a23f393&expirationTimestamp=1742904000000&signature=B5AJ1kFdSbYzCFiRqNG4D0mSPJWKtZrKW_YeBcSCO8U&downloadName=Chayan_resume_oct24.pdf)
+- 📄 Know about my experiences [https://bit.ly/chayan_roy](https://bit.ly/chayan_roy)
 
 - ⚡ Fun fact **I think I am talkative.**
 
